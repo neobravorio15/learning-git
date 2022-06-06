@@ -15,9 +15,10 @@ programing,
 automation,
 machine learning.
 
-the real vision: using my knowledge in trucking industry as class 8 truck tech,
-to intergrate IT with heavy rollers for transport logistics,
-to push out into the solor system and get some heavy rollers out there to mine the moon, mars, astroid belt
+The real vision: using my knowledge in trucking industry as class 8 truck tech,
+to intergrate IT with heavy rollers for transport logistics.
+To push out into the solor system and get some heavy rollers out there to mine the moon, mars, astroid belt
+
 I myself may never see those wheels touch the ground of another planet.
 but its not about that its about the future of humanity.
 a place, and meaning, purpose for everyone.
